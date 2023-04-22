@@ -1,7 +1,7 @@
 5+ years of programming.
  Currently learning Pentesting and social engineering.
  Contact me through
- Discord: TKShags#6766
+ Discord: кнудсен#6766
  
 
 <!---
