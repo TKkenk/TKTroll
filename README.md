@@ -1,7 +1,4 @@
 5+ years of programming.
- Currently learning Pentesting and social engineering.
- Contact me through
- Discord: кнудсен#6766
  
 
 <!---
